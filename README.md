@@ -1,3 +1,3 @@
-# Bone Quotes
+# Funny Quotes
 
 Please laugh
